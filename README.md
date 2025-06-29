@@ -10,6 +10,7 @@ https://t.me/didivip_bot
 官方直充，兄弟后秒开通！
 可以直接开通，也可以赠送他人！
 
-![{9692F8E9-6DA7-4385-B50E-EC840233522A}](https://github.com/user-attachments/assets/bb8c36e9-6e64-4ddf-9d1d-92ea1eedb943)
+![{73EF1D4A-381B-43D2-A02E-ADC0D3BAD02B}](https://github.com/user-attachments/assets/06beedd5-ab57-485c-a4d3-7fbcd5114862)
+
 
 @didivip_bot
